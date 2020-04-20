@@ -1,4 +1,5 @@
 # hello-hawaii
 Another day in paradise
 
-An advantage to coronavirus quarantine is learning new things on GitHub!
+This is not hell...
+https://www.flashlyrics.com/lyrics/jimmies-chicken-shack/this-is-not-hell-68
